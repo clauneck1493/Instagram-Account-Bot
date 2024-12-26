@@ -5,7 +5,7 @@ This tool is strongly recommended for educational purpose only.
 
 For password ping me :- https://t.me/bitrige
 
-Price is simple 60$
+## Price is simple 60$
 
 <p align="center">
   Follow On YotuTube
