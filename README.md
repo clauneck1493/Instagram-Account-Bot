@@ -17,6 +17,9 @@ Price is simple 60$
 </p>
 
 Support</h3><a href="https://t.me/"><img src="https://img.shields.io/badge/Contact%20Owner-red.svg?logo=Telegram"></a>
+![instareport](https://github.com/user-attachments/assets/50627fec-394e-44df-9961-618640a213c5)
+![instareport1](https://github.com/user-attachments/assets/1e96c127-5a37-4213-b421-ea4b1c9ceb17)
+![348222522-437a993f-6c0b-4e86-bd47-cfdb0894b5c4](https://github.com/user-attachments/assets/aa075433-363e-47c8-8658-77541343af9a)
 
 HOW TO USE?
 
